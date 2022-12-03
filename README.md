@@ -1,1 +1,1 @@
-# Proyecto-Final-Bioestad-stica
+# Proyecto-Final-Bioestadística
